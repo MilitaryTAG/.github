@@ -1,6 +1,9 @@
 # Welcome
 This page is intended for the military personnel who are not affiliated with "the company" and have no desire to be. It is intended to inform you about TAG and the National Security Incident that you are now undoubtedly involved in by entering Phoenix House Apt B-33.
 
+> [!NOTE]
+> The links this page are being updated, this was temporary content. Information made just for service personnel deployed here is being written right now. If you visit the original location the links work properly.  The original repository can be found at [https://github.com/TAGIsNoGame/TAG](https://github.com/TAGIsNoGame/TAG)
+
 # TAG
 TAG or The AIDS-Cure Genocide, which is the result of BigPharma's response to an unexpected disappearance of HIV in an HIV+ patient from a forthcoming product called Spark, direct from your Creator, the Creator. Spark eliminates and prevents all disease by fully activating the human immune system. What modern science considers a healthy immune system (T4s and T6s) is actually the last line of defense, the designed "failsafe."
 
