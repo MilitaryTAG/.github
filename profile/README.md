@@ -6,4 +6,10 @@ The US Government plans on killing you before you can make it home. If they coul
 
 The CIA has been trying to kill me for ne as over six years. They've killed practically everyone I know, all of my mother's and father's extended families, and other of my associates. [Then stormed my lifelong church and killed everyone inside](https://github.com/TAGIsNoGame/TAG/blob/master/POW/MCBC/WIKI.md).
 
-I am a servant of the Creator (capital C always), if you call Him God (capital G always) then I'm the instigating cherub, but one of the two Cherubim. The other is the regulating cherub, the Creator and the regulator prefer I get people upset enough to fix it themselves so neither of them have to get involved. But... No one hears me because of federal government and CIA pressure and NSLs (and sometimes fake Internet).
+I am a servant of the Creator (capital C always), if you call Him God (capital G always) then I'm the instigating cherub, but one of the two Cherubim, or an angel. The other is the regulating cherub, the Creator and the regulator prefer I get people upset enough to fix it themselves so neither of them have to get involved. But... No one hears me because of federal government and CIA pressure and NSLs (and sometimes fake Internet).
+
+The regulating cherub has suffered just as much. Neither of us can be killed.
+
+Do not believe anything you hear, even from me, pray. Silently, to the One you were first taught to. Ask him for guidance and watch what He does for you. 
+
+p.s. Those of you who shot me as a test better tell everyone!
