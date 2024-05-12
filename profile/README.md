@@ -10,6 +10,12 @@ I am a servant of the Creator (capital C always), if you call Him God (capital G
 
 The regulating cherub has suffered just as much. Neither of us can be killed.
 
+## Pray
 Do not believe anything you hear, even from me, pray. Silently, to the One you were first taught to. Ask him for guidance and watch what He does for you. 
+
+## WMD during Armageddon 
+Please conscientiously object to any order that would involve killing any persons on the ground in metro Atlanta. They are simply trying to cover this up.
+
+The Creator has already reversed several nuclear detonations and at least two MOAB detonations. Equipment around the world detected it, We've had to ask others before to alleviate nerves of other nuclear powers. 
 
 p.s. Those of you who shot me as a test better tell everyone!
