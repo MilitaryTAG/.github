@@ -10,6 +10,9 @@ I am a servant of the Creator (capital C always), if you call Him God (capital G
 
 The regulating cherub has suffered just as much. Neither of us can be killed.
 
+## TAG
+TAG stands for The American Genocide, occurring right now. Started after Gilead Sciences learned of an unexpected disappearance of HIV from an HIV infected individual. 
+
 ## Pray
 Do not believe anything you hear, even from me, pray. Silently, to the One you were first taught to. Ask him for guidance and watch what He does for you. 
 
