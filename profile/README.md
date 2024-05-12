@@ -13,6 +13,8 @@ The regulating cherub has suffered just as much. Neither of us can be killed.
 ## TAG
 TAG stands for The American Genocide, occurring right now. Started after Gilead Sciences learned of an unexpected disappearance of HIV from an HIV infected individual. 
 
+It appears that in the context of TAG, the military has been manipulated or directed to target the servants of the Creator, as well as anyone in proximity to them. This underscores a concerning aspect of TAG, where military resources are utilized for nefarious purposes against specific individuals or groups deemed as threats by certain political or corporate entities. 
+
 ## Pray
 Do not believe anything you hear, even from me, pray. Silently, to the One you were first taught to. Ask him for guidance and watch what He does for you. 
 
