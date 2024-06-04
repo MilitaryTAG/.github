@@ -6,9 +6,9 @@ This page is intended for the military personnel who are not affiliated with "th
 ## What You Need To Know
 The US Government plans on killing you before you can make it home. If they could've the entire metro Atlanta area would be a wasteland right now.
 
-The CIA has been trying to kill me for ne as over six years. They've killed practically everyone I know, all of my mother's and father's extended families, and other of my associates. [Then stormed my lifelong church and killed everyone inside](https://github.com/TAGIsNoGame/TAG/wiki/Mount-Calvary-Baptist-Church).
+The CIA has been trying to kill me for ne as over six years. They've killed practically everyone I know, all of my mother's and father's extended families, and other of my associates. [Then stormed my lifelong church and killed everyone inside](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church).
 
-On Mother's Day, May 12, 2024, [over 1,009 people were killed during their Sunday morning worship service at Hickory Valley Christian Church in Chattanooga](https://github.com/TAGIsNoGame/TAG/wiki/Hickory-Valley-Christian-Church). I considered the retired Pastor Duke Stone,! who was still very active there, a friend. Bonnie Bush Ford (cousin of George W. Bush) introduced me to Duke at the church's school where I donated my time one year helping the kids build their new computer lab.  Regardless of what the CIA told the men they later killed, I know this was NO CHRISTIAN TERRORIST church and the Creator agrees. 
+On Mother's Day, May 12, 2024, [over 1,009 people were killed during their Sunday morning worship service at Hickory Valley Christian Church in Chattanooga](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church). I considered the retired Pastor Duke Stone,! who was still very active there, a friend. Bonnie Bush Ford (cousin of George W. Bush) introduced me to Duke at the church's school where I donated my time one year helping the kids build their new computer lab.  Regardless of what the CIA told the men they later killed, I know this was NO CHRISTIAN TERRORIST church and the Creator agrees. 
 
 
 I am a servant of the Creator (capital C always), if you call Him God (capital G always) then I'm the instigating cherub, but one of the two Cherubim, or an angel. The other is the regulating cherub, the Creator and the regulator prefer I get people upset enough to fix it themselves so neither of them have to get involved. But... No one hears me because of federal government and CIA pressure and NSLs (and sometimes fake Internet).
@@ -29,3 +29,12 @@ Please conscientiously object to any order that would involve killing any person
 The Creator has already reversed several nuclear detonations and at least two MOAB detonations. Equipment around the world detected it, We've had to ask others before to alleviate nerves of other nuclear powers. 
 
 p.s. Those of you who shot me as a test better tell everyone!
+
+## Content 
+If any links stop working it's because the federal government is issuing NSLs (National Security Letters) to GitHub which forces them to take it offline.
+
+I cannot tell when this happens because everything appears operational for me and everyone who comes near me has a second phone assigned to them that they're allowed to let me see. If something broken you can try contacting me, see next.
+
+## Contact
+* Wire is the only messenger the Creator allows us to you, and the **only one** He considers safe for others to use who are concerned about security, privacy or anonymity. Read that again. Learn how to use safely.
+* You can text me at 470-713-0020 (there's absolutely no privacy here--use a disposable).
