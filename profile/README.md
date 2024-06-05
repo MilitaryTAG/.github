@@ -53,10 +53,9 @@ The Creator reveals that this genocide is now being fueled by the political elit
 
 #### A Temporary 11th Commandment for the US Military 
 
-
 The Creator is aware that you have been deceived, and His anger is palpable. He commands you to utilize military intelligence to verify the massacres and attempted cover-ups, ensuring you confirm these events. Once verified, refuse to harm innocent civilians and remain steadfast on the path of truth and justice. Additionally, exercise heightened vigilance against attempts to manipulate the situation.
 
-It's important to note that this command isn't about protecting the Creator's servants but rather safeguarding your fellow citizens from the misuse of military force to conceal the actions of a few individuals. 
+This directive prioritizes the safety of your fellow citizens, aiming to prevent the misuse of military force to conceal the actions of a select few, rather than solely focusing on protecting the Creator's servants.
 
 > [!NOTE]
 > Personally, to the cloaked, my door is always open, even when closed and locked, so there's no necessity to target metro-Atlanta when the named target is so easily reached. Had the CIA waited until successfully eliminating one or both of the Creator's two servants, which began over six years ago, before targeting others, many wonderful people would still be alive today. Our missions always prioritize protecting and nurturing life, and we are never terminated before our tasks are fulfilled. The Creator recognizes that the continuity of the human race, including you and your loved ones, hinges on it.
