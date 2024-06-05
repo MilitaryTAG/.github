@@ -19,13 +19,19 @@ TAG, originally standing for "The AIDS-cure Genocide," was initiated by Gilead S
 
 TAG-POW (The American Genocide - Pattern of War) attacks involve covert operations, assassinations, and massacres disguised to look like natural causes or accidents. These attacks are hidden through media manipulation and government pressure, preventing the truth from reaching the public. The military intelligence will show that neither Mount Calvary Baptist Church nor Hickory Valley Christian Church were ever deemed terrorists.
 
+[Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
+
 #### Mount Calvary Baptist Church Massacre
 
 Mount Calvary Baptist Church in Lexington, KY, was a predominantly black congregation. The CIA attacked this church to prevent me from proving that my family was massacred and my mother was being impersonated. The congregation was systematically killed, and the incident was covered up. The federal government went as far as to hire people who resemble my family members to perpetuate the lie.
 
+[Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
+
 #### Hickory Valley Christian Church Massacre
 
 Hickory Valley Christian Church in Chattanooga, TN, was an all-white congregation. After receiving an email from me about the Mount Calvary massacre, they verified the information themselves and became cautious. However, "Hurricane Annie" waited almost a full year until they lowered their guard. On Mother's Day, the CIA attacked the church while a conference call was in progress, ensuring no one survived. This incident remains unknown to most operatives due to the extensive cover-up.
+
+[Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
 
 #### The Threat of Authoritarianism
 
