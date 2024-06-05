@@ -49,7 +49,7 @@ This incident remains unknown to the public due to the extensive cover-up.
 
 #### The Threat of Authoritarianism
 
-The Creator vehemently opposes authoritarianism. TAG is designed to strip Americans of self-governance, replacing democracy with authoritarian rule. The deployment of military personnel to eliminate me is a political move to prevent the exposure of these atrocities.
+The Creator reveals that this genocide is now being fueled by the political elite who seek to establish an authoritarian regime, a concept vehemently opposed by the Creator. TAG was initially designed to silence dissenting voices and pave the way for authoritarian rule by eliminating those who oppose it. The deployment of military personnel to eliminate me is a political maneuver aimed at preventing the exposure of these atrocities and create the new status quo, right under your noses.
 
 #### A Call to Conscience
 
