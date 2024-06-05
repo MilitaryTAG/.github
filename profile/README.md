@@ -1,5 +1,8 @@
+> [!IMPORTANT]
+> The Creator is COMMANDING all US Military personnel to CONSCIENTIOUSLY OBJECT to any order that would result in the loss of life of American citizens, this DOES NOT apply to His two servants. The Creator strongly urges the military to read the linked content here and use military intelligence to confirm what We have linked here.
+
 > [!NOTE]
-> This is being written and edited in the midst of attacks from everyone including a passing train. Be sure to read the linked articles about the two church attacks listed and what God is telling you to do: conscientiously object to any order that will harm anyone other than your named target, me.
+> This was written with AI and being proofread in the midst of attacks from everyone, including a passing train. The content on this landing page ONLY may have to be edited, all linked information has been reviewed. When in doubt, pray for guidance.
 
 ### Welcome to Your True Mission
 
