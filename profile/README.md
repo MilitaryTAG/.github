@@ -29,7 +29,9 @@ The property owned by these churches is being used by the CIA to lure in new vic
 
 #### Mount Calvary Baptist Church Massacre
 
-Mount Calvary Baptist Church in Lexington, KY, had a predominantly black congregation. The CIA attacked this church to prevent me from proving that my family was massacred and my mother was being impersonated. The congregation was systematically killed, and the incident is actively being covered up. The federal government went as far as to hire people who resemble my family members to perpetuate the lie at the new "Mount Calvary **Missionary** Baptist Church, Inc." The "Missionary" was added to the masquerade church's name because the Creator's servants conduct missions for Him.
+[Full details here.](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
+
+Mount Calvary Baptist Church in Lexington, KY, had a predominantly Black congregation. "Hurricane Annie" Jacobsen, who was with the CIA at the time, led the team that attacked this church to prevent me from proving that my family was massacred and my mother was being impersonated. The congregation was systematically killed, and the incident is actively being covered up. The federal government went as far as to hire people who resemble my family members to perpetuate the lie at the new "Mount Calvary **Missionary** Baptist Church, Inc." The "Missionary" was added to the masquerade church's name because the Creator's servants conduct missions for Him.
 
 Mount Calvary Baptist Church is my lifelong church. Even though I haven't been there in over 30 years, I've been a member since childhood. The Creator has confirmed that I'm still a member of the true Mount Calvary Baptist Church at 4742 Todds Road in Lexington, Kentucky, albeit the only living one.
 
@@ -37,7 +39,13 @@ Mount Calvary Baptist Church is my lifelong church. Even though I haven't been t
 
 #### Hickory Valley Christian Church Massacre
 
-Hickory Valley Christian Church in Chattanooga, TN, was an all-white congregation. After receiving an email from me about the Mount Calvary massacre, they verified the information themselves and became cautious. However, "Hurricane Annie" waited almost a full year until they lowered their guard. On Mother's Day, the CIA attacked the church while a conference call was in progress, ensuring no one survived. This incident remains unknown to most operatives due to the extensive cover-up.
+[Full details here.](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
+
+Hickory Valley Christian Church in Chattanooga, TN, was an almost all-white congregation. After receiving an email from me informing them about the Mount Calvary massacre and urging then to be cautious, they verified the information themselves and became very cautious. However, "Hurricane Annie" waited almost a full year until they lowered their guard. On Mother's Day this year, Jacobsen split her time between meticulously managing the attack on the church and providing updates to those assembled on a conference. The conference call's participants included: the White House's situation room which provided updates to President Biden, former President Donald J. Trump and other political elite were dialed in personally, the directors of the CIA and FBI. Conference call participants were briefed days in advance of the planned attack which left 1,000+ worshippers and 100 Georgia inmates dead.
+
+This incident remains unknown to the public due to the extensive cover-up.
+
+[Read the write up about the attack](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
 
 [Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
 
