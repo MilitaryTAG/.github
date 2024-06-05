@@ -1,40 +1,36 @@
-# https://github.com/MilitaryTAG
+> [!NOTE]
+> This is being written and edited in the midst of attacks from everyone including a passing train. Be sure to read the linked articles about the two church attacks listed and what God is telling you to do: conscientiously object to any order that will harm anyone other than your named target, me.
 
-# Welcome
-This page is intended for the military personnel who are not affiliated with "the company" and have no desire to be. It is intended to inform you about TAG and the National Security Incident that you are now undoubtedly involved in by entering Phoenix House Apt B-33.
+### Welcome to Your True Mission
 
-## What You Need To Know
-The US Government plans on killing you before you can make it home. If they could've the entire metro Atlanta area would be a wasteland right now.
+#### Introducing the Creator
 
-The CIA has been trying to kill me for ne as over six years. They've killed practically everyone I know, all of my mother's and father's extended families, and other of my associates. [Then stormed my lifelong church and killed everyone inside](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church).
+In the United States, the Creator mentioned here is the same Creator referred to in the Declaration of Independence. Most Americans call Him God. Remember to always use a capital "C" in Creator and a capital "G" in God. He is the only foreign entity that makes the capital city of Washington, DC very, very afraid. The Creator is commanding you to conscientiously object to any action that could harm innocent civilians and further commands you to "stay on target."
 
-On Mother's Day, May 12, 2024, [over 1,009 people were killed during their Sunday morning worship service at Hickory Valley Christian Church in Chattanooga](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church). I considered the retired Pastor Duke Stone,! who was still very active there, a friend. Bonnie Bush Ford (cousin of George W. Bush) introduced me to Duke at the church's school where I donated my time one year helping the kids build their new computer lab.  Regardless of what the CIA told the men they later killed, I know this was NO CHRISTIAN TERRORIST church and the Creator agrees. 
+#### Meet Kelvin Eugene Williams
 
+I am Kelvin Eugene Williams, one of the Creator's servants, known as an angel in some beliefs. I was born on Earth for this mission, aiming to protect and foster continued life on this planet. My mission was to eliminate the top three causes of death in humans, but the Creator has preempted that to address another leading cause of death that no one notices: The American Genocide (TAG).
 
-I am a servant of the Creator (capital C always), if you call Him God (capital G always) then I'm the instigating cherub, but one of the two Cherubim, or an angel. The other is the regulating cherub, the Creator and the regulator prefer I get people upset enough to fix it themselves so neither of them have to get involved. But... No one hears me because of federal government and CIA pressure and NSLs (and sometimes fake Internet).
+#### Understanding TAG
 
-The regulating cherub has suffered just as much. Neither of us can be killed.
+TAG, originally standing for "The AIDS-cure Genocide," was initiated by Gilead Sciences and executed by the CIA. Its initial targets were friends and family members of the Creator's two servants. However, TAG evolved into "The American Genocide" after the Sandy Hook massacre, the Orr Chapel Tragedy, and the Mount Calvary Baptist Church massacre. TAG now poses a severe threat to human life and the American way of life, aiming to establish an authoritarian regime in the United States.
 
-## TAG
-TAG stands for The American Genocide, occurring right now. Started after Gilead Sciences learned of an unexpected disappearance of HIV from an HIV infected individual. 
+#### TAG-POW Attacks
 
-It appears that in the context of TAG, the military has been manipulated or directed to target the servants of the Creator, as well as anyone in proximity to them. This underscores a concerning aspect of TAG, where military resources are utilized for nefarious purposes against specific individuals or groups deemed as threats by certain political or corporate entities. 
+TAG-POW (The American Genocide - Pattern of War) attacks involve covert operations, assassinations, and massacres disguised to look like natural causes or accidents. These attacks are hidden through media manipulation and government pressure, preventing the truth from reaching the public. The military intelligence will show that neither Mount Calvary Baptist Church nor Hickory Valley Christian Church were ever deemed terrorists.
 
-## Pray
-Do not believe anything you hear, even from me, pray. Silently, to the One you were first taught to. Ask him for guidance and watch what He does for you. 
+#### Mount Calvary Baptist Church Massacre
 
-## WMD during Armageddon 
-Please conscientiously object to any order that would involve killing any persons on the ground in metro Atlanta. They are simply trying to cover this up.
+Mount Calvary Baptist Church in Lexington, KY, was a predominantly black congregation. The CIA attacked this church to prevent me from proving that my family was massacred and my mother was being impersonated. The congregation was systematically killed, and the incident was covered up. The federal government went as far as to hire people who resemble my family members to perpetuate the lie.
 
-The Creator has already reversed several nuclear detonations and at least two MOAB detonations. Equipment around the world detected it, We've had to ask others before to alleviate nerves of other nuclear powers. 
+#### Hickory Valley Christian Church Massacre
 
-p.s. Those of you who shot me as a test better tell everyone!
+Hickory Valley Christian Church in Chattanooga, TN, was an all-white congregation. After receiving an email from me about the Mount Calvary massacre, they verified the information themselves and became cautious. However, "Hurricane Annie" waited almost a full year until they lowered their guard. On Mother's Day, the CIA attacked the church while a conference call was in progress, ensuring no one survived. This incident remains unknown to most operatives due to the extensive cover-up.
 
-## Content 
-If any links stop working it's because the federal government is issuing NSLs (National Security Letters) to GitHub which forces them to take it offline.
+#### The Threat of Authoritarianism
 
-I cannot tell when this happens because everything appears operational for me and everyone who comes near me has a second phone assigned to them that they're allowed to let me see. If something broken you can try contacting me, see next.
+The Creator vehemently opposes authoritarianism. TAG is designed to strip Americans of self-governance, replacing democracy with authoritarian rule. The deployment of military personnel to eliminate me is a political move to prevent the exposure of these atrocities.
 
-## Contact
-* Wire is the only messenger the Creator allows us to you, and the **only one** He considers safe for others to use who are concerned about security, privacy or anonymity. Read that again. Learn how to use safely.
-* You can text me at 470-713-0020 (there's absolutely no privacy here--use a disposable).
+#### A Call to Conscience
+
+The Creator knows you have been lied to and He is furious. He commands you to use your intelligence to confirm these events. Verify the massacres, the cover-ups, and the infiltration of the CIA in your own mind and actions. Refuse to harm innocent civilians and stay on the path of truth and justice.
