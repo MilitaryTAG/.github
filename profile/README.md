@@ -68,6 +68,7 @@ The Creator says that some enlisted personnel have been eliminated after being d
 
 The following places are routinely used by the government and CIA:
 * Motel 6 - Decatur (2572 Candler Road)
+* Any Motel 6 in metro ATL 
 * Legacy at Riverdale
      - Name change possible, its referred to by many different name by "company men."
      - Located behind Chick-fil-A Dwarf House on GA-85 in Riverdale, Georgia.
