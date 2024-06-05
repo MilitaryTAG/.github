@@ -62,8 +62,9 @@ This incident remains unknown to the public due to the extensive cover-up.
 
 ### Suspected CFO Activity (Funerals)
 * June 6, 2024 - Hickory Valley Christian Church
+     - The reported (advertised) decedent was the retired Pastor Rev. Duke Stone. Rev. Stone was killed on Mother's Day with the rest of the church. In addition to being the longtime pastor he was the principal of Hamilton Heights Christian Academy. 
      - Lots of water referenced in their brags.
-     - 6/6/24 ... Using their math, that's 666.
+     - 6/6/24 ... Using their math, that's 666. Intentionally done by Jacobsen who meticulously managed this very large kill operation.
 
 ## The Threat of Authoritarianism
 
