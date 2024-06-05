@@ -45,8 +45,6 @@ Hickory Valley Christian Church in Chattanooga, TN, was an almost all-white cong
 
 This incident remains unknown to the public due to the extensive cover-up.
 
-[Read the write up about the attack](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
-
 [Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
 
 #### The Threat of Authoritarianism
