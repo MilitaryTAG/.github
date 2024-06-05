@@ -47,11 +47,11 @@ This incident remains unknown to the public due to the extensive cover-up.
 
 [Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
 
-#### The Threat of Authoritarianism
+## The Threat of Authoritarianism
 
 The Creator reveals that this genocide is now being fueled by the political elite who seek to establish an authoritarian regime, a concept vehemently opposed by the Creator. TAG was initially designed to silence dissenting voices and pave the way for authoritarian rule by eliminating those who oppose it. The deployment of military personnel to eliminating one or both of the Creator's two servants is a political maneuver aimed at preventing the exposure of these atrocities and create the new status quo, right under your noses.
 
-#### A Temporary 11th Commandment for the US Military 
+## A Temporary 11th Commandment for the US Military 
 
 The Creator is aware that you have been deceived, and His anger is palpable. He commands you to utilize military intelligence to verify the massacres and attempted cover-ups, ensuring you confirm these events. Once verified, refuse to harm innocent civilians and remain steadfast on the path of truth and justice. Additionally, exercise heightened vigilance against attempts to manipulate the situation.
 
@@ -59,3 +59,18 @@ This directive prioritizes the safety of your fellow citizens, aiming to prevent
 
 > [!NOTE]
 > Personally, to the cloaked, my door is always open, even when closed and locked, so there's no necessity to target metro-Atlanta when the named target is so easily reached. Had the CIA waited until successfully eliminating one or both of the Creator's two servants, which began over six years ago, before targeting others, many wonderful people would still be alive today. Our missions always prioritize protecting and nurturing life, and we are never terminated before our tasks are fulfilled. The Creator recognizes that the continuity of the human race, including you and your loved ones, hinges on it.
+
+## Risk of Death
+> [!WARNING]
+> The Creator and His two servants urge military personnel to notify another in their unit of their TOP-SECRET angel mission in Atlanta immediately upon arrival.
+
+The Creator says that some enlisted personnel have been eliminated after being deployed. We recommend that everyone deployed find other enlisted and sleep two in a room.  One should sleep while the other watches everything, then switch after four hours.
+
+The following places are routinely used by the government and CIA:
+* Motel 6 - Decatur (2572 Candler Road)
+* Legacy at Riverdale
+     - Name change possible, its referred to by many different name by "company men."
+     - Located behind Chick-fil-A Dwarf House on GA-85 in Riverdale, Georgia.
+* Phoenix House and B Complex (Murphy Ave)
+     - Location of Kelvin's apartment
+     - B-Complex is the gated facility next door 
