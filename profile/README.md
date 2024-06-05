@@ -60,6 +60,11 @@ This incident remains unknown to the public due to the extensive cover-up.
 **Unveil the Ruthless Strategy:**
 [See how multiple unrelated decedents per funeral and targeted eliminations keep the truth about PoW attacks buried.](https://github.com/nameless-and-blameless/TAG/wiki/TAGCFO)
 
+### Suspected CFO Activity (Funerals)
+* June 6, 2024 - Hickory Valley Christian Church
+     - Lots of water referenced in their brags.
+     - 6/6/24 ... Using their math, that's 666.
+
 ## The Threat of Authoritarianism
 
 The Creator reveals that this genocide is now being fueled by the political elite who seek to establish an authoritarian regime, a concept vehemently opposed by the Creator. TAG was initially designed to silence dissenting voices and pave the way for authoritarian rule by eliminating those who oppose it. The deployment of military personnel to eliminating one or both of the Creator's two servants is a political maneuver aimed at preventing the exposure of these atrocities and create the new status quo, right under your noses.
