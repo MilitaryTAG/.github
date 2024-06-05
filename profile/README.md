@@ -31,7 +31,7 @@ The property owned by these churches is being used by the CIA to lure in new vic
 
 Mount Calvary Baptist Church in Lexington, KY, had a predominantly black congregation. The CIA attacked this church to prevent me from proving that my family was massacred and my mother was being impersonated. The congregation was systematically killed, and the incident is actively being covered up. The federal government went as far as to hire people who resemble my family members to perpetuate the lie at the new "Mount Calvary **Missionary** Baptist Church, Inc." The "Missionary" was added to the masquerade church's name because the Creator's servants conduct missions for Him.
 
-Mount Calvary Baptist Church is my lifelong church. Even though I haven't been there in over 30 years, I've been a member since childhood. The Creator has confirmed that I'm still a member, albeit the only living one.
+Mount Calvary Baptist Church is my lifelong church. Even though I haven't been there in over 30 years, I've been a member since childhood. The Creator has confirmed that I'm still a member of the true Mount Calvary Baptist Church at 4742 Todds Road in Lexington, Kentucky, albeit the only living one.
 
 [Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
 
