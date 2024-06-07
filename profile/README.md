@@ -1,6 +1,10 @@
 > [!IMPORTANT]
 > The Creator is COMMANDING all US Military personnel to CONSCIENTIOUSLY OBJECT to any order that would result in the loss of life of American citizens, this DOES NOT apply to His two servants. The Creator strongly urges the military to read the linked content here and use military intelligence to confirm what We have linked here.
 
+> [!NOTE]
+> The apocalypse is upon us! The CAVs from the [phantom funeral](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) [NSLPL](https://github.com/nameless-and-blameless/TAG/blob/master/wiki/Phantom-Funerals.md) 
+>  today for Duke Stone at Hickory Valley Christian Church in Chattanooga would make this genocide surpass the Holocaust in death toll.
+
 ### Introduction to TAG: Unveiling the Shadows
 
 Welcome, soldiers, to a revelation shrouded in secrecy, a tale of clandestine operations and hidden agendas. Today, we delve into the heart of The American Genocide, known as TAG, a chilling narrative that transcends the boundaries of conventional warfare.
