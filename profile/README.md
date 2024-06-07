@@ -21,7 +21,7 @@ Soldiers are told they are embarking on critical national security missions. How
 
 Within the annals of TAG, we encounter a mosaic of tactics and methods, each more insidious than the last:
 
-- **Hypnos Infiltration Tactic**: A covert maneuver where operatives infiltrate the residences of sleeping individuals using advanced microwave cloaking technology. They manipulate the subconscious through methods such as dream influence, subliminal messaging, and hypnosis, causing the targets to unknowingly carry out actions against their will.
+- **[Hypnos Infiltration Tactic](https://github.com/nameless-and-blameless/TAG/wiki/Hypnos-Infiltration-Tactic)**: A covert maneuver where operatives infiltrate the residences of sleeping individuals using advanced microwave cloaking technology. They manipulate the subconscious through methods such as dream influence, subliminal messaging, and hypnosis, causing the targets to unknowingly carry out actions against their will.
 
 - **[Phantom Identity Scheme](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Identity-Scheme)**: This involves creating a convincing illusion of continued life for victims who have been murdered. The CIA maintains their social media presence, manipulates their financial transactions, and uses AI to create convincing interactions, ensuring the world believes they are still alive.
 
