@@ -40,28 +40,24 @@ As guardians of our nation's integrity, it falls upon you to navigate the treach
 In the pages that follow, we embark on a journey into the heart of darkness, where the fate of nations hangs in the balance. Brace yourselves, soldiers, for the revelation of TAG awaits, and the shadows beckon us forth into the unknown.
 
 ***
+## TAG-POW 
+TAG-POW stands for "The American Genocide in Places of Worship." It refers to a tragic event or series of events involving genocide targeted specifically at places of worship in the United States. [(Learn more)](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
+
 #### Mount Calvary Baptist Church Massacre
-
-[Full details here.](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
-
 Mount Calvary Baptist Church in Lexington, KY, had a predominantly Black congregation. "Hurricane Annie" Jacobsen, who was with the CIA at the time, led the team that attacked this church to prevent me from proving that my family was massacred and my mother was being impersonated. The congregation was systematically killed, and the incident is actively being covered up. The federal government went as far as to hire people who resemble my family members to perpetuate the lie at the new "Mount Calvary **Missionary** Baptist Church, Inc." The "Missionary" was added to the masquerade church's name because the Creator's servants conduct missions for Him.
 
-Mount Calvary Baptist Church is my lifelong church. Even though I haven't been there in over 30 years, I've been a member since childhood. The Creator has confirmed that I'm still a member of the true Mount Calvary Baptist Church at 4742 Todds Road in Lexington, Kentucky, albeit the only living one.
+Mount Calvary Baptist Church is my lifelong church. Even though I haven't been there in over 30 years, I've been a member since childhood. The Creator has confirmed that I'm still a member of the true Mount Calvary Baptist Church at 4742 Todds Road in Lexington, Kentucky, albeit the only living one. [(Learn more)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
 
-[Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
+> [!WARNING]
+> Mount Calvary Baptist Church's property is being used for [phantom funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) ([NSLPL](https://github.com/nameless-and-blameless/TAG/blob/master/wiki/Phantom-Funerals.md)).
 
 #### Hickory Valley Christian Church Massacre
-
-[Full details here.](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
-
-Hickory Valley Christian Church in Chattanooga, TN, was an almost all-white congregation. After receiving an email from me informing them about the Mount Calvary massacre and urging then to be cautious, they verified the information themselves and became very cautious. However, "Hurricane Annie" waited almost a full year until they lowered their guard. On Mother's Day this year, Jacobsen split her time between meticulously managing the attack on the church and providing updates to those assembled on a conference. **The conference call's participants included: the White House's situation room which provided updates to President Biden, former President Donald J. Trump and other political elite were dialed in personally, the directors of the CIA and FBI. Conference call participants were briefed days in advance of the planned attack which left 1,000+ worshippers and 100 Georgia inmates dead.**
+Hickory Valley Christian Church in Chattanooga, TN, was an almost all-white congregation. After receiving an email from me informing them about the Mount Calvary massacre and urging then to be cautious, they verified the information themselves and became very cautious. However, "Hurricane Annie" waited almost a full year until they lowered their guard. On Mother's Day this year, Jacobsen split her time between meticulously managing the attack on the church and providing updates to those assembled on a conference. **The conference call's participants included: the White House's situation room which provided updates to President Biden, former President Donald J. Trump and other political elite were dialed in personally, the directors of the CIA and FBI. Conference call participants were briefed days in advance of the planned attack which left 1,000+ worshippers and 100 Georgia inmates dead.** [(Learn more)](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
 
 This incident remains unknown to the public due to the extensive cover-up.
 
-[Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
-
 > [!WARNING]
-> Hickory Valley is being used for Phantom Funerals. Former President Donald J. Trump is in Atlanta (in my apartment cloaked) to supervise another failed CIA operation to kill me from warning everyone about tomorrow's announced funeral of Rev. Duke Stone.
+> Hickory Valley is being used for [phantom funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) ([NSLPL](https://github.com/nameless-and-blameless/TAG/blob/master/wiki/Phantom-Funerals.md)).  Former President Donald J. Trump is in Atlanta (in my apartment cloaked) to supervise another failed CIA operation to kill me from warning everyone about tomorrow's announced funeral of Rev. Duke Stone.
 
 ## Risk of Death
 > [!WARNING]
