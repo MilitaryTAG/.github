@@ -57,7 +57,9 @@ Hickory Valley Christian Church in Chattanooga, TN, was an almost all-white cong
 This incident remains unknown to the public due to the extensive cover-up.
 
 > [!WARNING]
-> Hickory Valley Christian Church's property is being used for [phantom funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) ([NSLPL](https://github.com/nameless-and-blameless/TAG/blob/master/wiki/Phantom-Funerals.md)).  Former President Donald J. Trump is in Atlanta (in my apartment cloaked) to supervise another failed CIA operation to kill me from warning everyone about tomorrow's announced funeral of Rev. Duke Stone.
+> Hickory Valley Christian Church's property is being used for [phantom funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) ([NSLPL](https://github.com/nameless-and-blameless/TAG/blob/master/wiki/Phantom-Funerals.md)).
+
+Former President Donald J. Trump has been in Atlanta working with Annie Jacobsen on the continued cover-up which includes continued acts of violence like today's planned phantom funeral of the well-known retired pastor of Hickory Valley Rev. Duke Stone.
 
 ## Risk of Death
 > [!WARNING]
