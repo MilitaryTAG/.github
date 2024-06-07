@@ -1,24 +1,41 @@
 > [!IMPORTANT]
 > The Creator is COMMANDING all US Military personnel to CONSCIENTIOUSLY OBJECT to any order that would result in the loss of life of American citizens, this DOES NOT apply to His two servants. The Creator strongly urges the military to read the linked content here and use military intelligence to confirm what We have linked here.
 
-**Introduction to TAG: Unveiling the Shadows**
+### Introduction to TAG: Unveiling the Shadows
 
 Welcome, soldiers, to a revelation shrouded in secrecy, a tale of clandestine operations and hidden agendas. Today, we delve into the heart of The American Genocide, known as TAG, a chilling narrative that transcends the boundaries of conventional warfare.
 
-TAG, initially cloaked in obscurity, emerges as a harrowing saga intertwined with the shadows of power, manipulation, and subterfuge. At its core lies a sinister plot, orchestrated by clandestine forces to reshape the very fabric of our nation.
+TAG, initially cloaked in obscurity, emerges as a harrowing saga intertwined with the shadows of power, manipulation, and subterfuge. At its core lies a sinister plot, orchestrated by clandestine forces to reshape the very fabric of our nation, pushing it towards authoritarian rule. Without the intervention of the Creator, [this operation threatens](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) to culminate in a catastrophe worse than the Holocaust.
 
-Within the annals of TAG, we encounter a mosaic of tactics and methods, each more insidious than the last. From the Hypnos Infiltration Tactic, a covert maneuver that infiltrates the subconscious of unsuspecting individuals, to the Phantom Identity Scheme, a web of deceit that masks the true fate of victims, TAG unveils a world where reality blurs with illusion.
+**Hidden Truths and Military Deception**
 
-As soldiers, you stand at the precipice of this dark abyss, where truth and deception intertwine with deadly consequences. Here, the line between friend and foe blurs, and the very essence of trust is put to the test.
+Our military, the backbone of this nation’s security, has been kept in the dark about TAG. The truth about these operations has been deliberately obscured. Unbeknownst to many, enlisted personnel are being manipulated and then eliminated under the guise of top-secret missions.
 
-But fear not, for knowledge is your shield in this battlefield of shadows. By unraveling the intricacies of TAG, you arm yourselves with the power to discern reality from fabrication, truth from manipulation.
+Soldiers are told they are embarking on critical national security missions. However, these missions are a cover for sinister operations, orchestrated by the CIA and other shadowy entities. These personnel, often separated from their units and partners, become pawns in a deadly game. Many are reported as going AWOL or casualties of fictitious scenarios, their true fates hidden from their families and comrades.
+
+**Insidious Tactics and Methods**
+
+Within the annals of TAG, we encounter a mosaic of tactics and methods, each more insidious than the last:
+
+- **Hypnos Infiltration Tactic**: A covert maneuver where operatives infiltrate the residences of sleeping individuals using advanced microwave cloaking technology. They manipulate the subconscious through methods such as dream influence, subliminal messaging, and hypnosis, causing the targets to unknowingly carry out actions against their will.
+
+- **Phantom Identity Scheme**: This involves creating a convincing illusion of continued life for victims who have been murdered. The CIA maintains their social media presence, manipulates their financial transactions, and uses AI to create convincing interactions, ensuring the world believes they are still alive.
+
+- **Phantom Funerals (CAVs)**: Following a TAG-POW attack, where places of worship are targeted, the CIA occupies these locations. Funerals for the victims, which are Continued Acts of Violence (CAVs), are orchestrated to trap and eliminate mourners. This ensures no one pieces together the true scale of the massacres.
+
+**The Role of Enlisted Military Personnel**
+
+No active military has been used in any act during TAG. However, they have been used in the government's ongoing attempts to eliminate the Creator's two servants, including everyone within the blast radius of the weapons used in and around metro Atlanta. Those who followed orders have subsequently been eliminated to keep the fact they followed orders secret. Enlisted personnel are deployed individually, separated from their units, and manipulated through the Hypnos Infiltration Tactic while sleeping. These manipulations cause them to unknowingly carry out killings of other military personnel, all orchestrated by the CIA. The military personnel involved have no awareness of TAG, being used as tools in a larger, darker scheme.
+
+**Call to Vigilance**
+
+As soldiers, you stand at the precipice of this dark abyss, where truth and deception intertwine with deadly consequences. Here, the line between friend and foe blurs, and the very essence of trust is put to the test. Knowledge is your shield in this battlefield of shadows. By unraveling the intricacies of TAG, you arm yourselves with the power to discern reality from fabrication, truth from manipulation.
 
 As guardians of our nation's integrity, it falls upon you to navigate the treacherous waters of TAG, to shine a light into the darkest corners of secrecy, and to safeguard the principles for which we stand.
 
 In the pages that follow, we embark on a journey into the heart of darkness, where the fate of nations hangs in the balance. Brace yourselves, soldiers, for the revelation of TAG awaits, and the shadows beckon us forth into the unknown.
 
 ***
-
 #### Mount Calvary Baptist Church Massacre
 
 [Full details here.](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
