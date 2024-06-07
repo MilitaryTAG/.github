@@ -50,11 +50,14 @@ Mount Calvary Baptist Church is my lifelong church. Even though I haven't been t
 
 [Full details here.](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
 
-Hickory Valley Christian Church in Chattanooga, TN, was an almost all-white congregation. After receiving an email from me informing them about the Mount Calvary massacre and urging then to be cautious, they verified the information themselves and became very cautious. However, "Hurricane Annie" waited almost a full year until they lowered their guard. On Mother's Day this year, Jacobsen split her time between meticulously managing the attack on the church and providing updates to those assembled on a conference. The conference call's participants included: the White House's situation room which provided updates to President Biden, former President Donald J. Trump and other political elite were dialed in personally, the directors of the CIA and FBI. Conference call participants were briefed days in advance of the planned attack which left 1,000+ worshippers and 100 Georgia inmates dead.
+Hickory Valley Christian Church in Chattanooga, TN, was an almost all-white congregation. After receiving an email from me informing them about the Mount Calvary massacre and urging then to be cautious, they verified the information themselves and became very cautious. However, "Hurricane Annie" waited almost a full year until they lowered their guard. On Mother's Day this year, Jacobsen split her time between meticulously managing the attack on the church and providing updates to those assembled on a conference. **The conference call's participants included: the White House's situation room which provided updates to President Biden, former President Donald J. Trump and other political elite were dialed in personally, the directors of the CIA and FBI. Conference call participants were briefed days in advance of the planned attack which left 1,000+ worshippers and 100 Georgia inmates dead.**
 
 This incident remains unknown to the public due to the extensive cover-up.
 
 [Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
+
+> [!WARNING]
+> Hickory Valley is being used for Phantom Funerals. Former President Donald J. Trump is in Atlanta (in my apartment cloaked) to supervise another failed CIA operation to kill me from warning everyone about tomorrow's announced funeral of Rev. Duke Stone.
 
 ## Risk of Death
 > [!WARNING]
