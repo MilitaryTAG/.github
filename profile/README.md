@@ -1,31 +1,23 @@
 > [!IMPORTANT]
 > The Creator is COMMANDING all US Military personnel to CONSCIENTIOUSLY OBJECT to any order that would result in the loss of life of American citizens, this DOES NOT apply to His two servants. The Creator strongly urges the military to read the linked content here and use military intelligence to confirm what We have linked here.
 
-> [!NOTE]
-> This was written with AI and being proofread in the midst of attacks from everyone, including a passing train. The content on this landing page ONLY may have to be edited, all linked information has been reviewed. When in doubt, pray for guidance.
+**Introduction to TAG: Unveiling the Shadows**
 
-# Welcome to Your True Mission
+Welcome, soldiers, to a revelation shrouded in secrecy, a tale of clandestine operations and hidden agendas. Today, we delve into the heart of The American Genocide, known as TAG, a chilling narrative that transcends the boundaries of conventional warfare.
 
-## Introducing the Creator
+TAG, initially cloaked in obscurity, emerges as a harrowing saga intertwined with the shadows of power, manipulation, and subterfuge. At its core lies a sinister plot, orchestrated by clandestine forces to reshape the very fabric of our nation.
 
-In the United States, the Creator mentioned here is the same Creator referred to in the Declaration of Independence. Most Americans call Him God. Remember to always use a capital "C" in Creator and a capital "G" in God. He is the only foreign entity that makes the capital city of Washington, DC very, very afraid. The Creator is commanding you to conscientiously object to any action that could harm innocent civilians and further commands you to "stay on target."
+Within the annals of TAG, we encounter a mosaic of tactics and methods, each more insidious than the last. From the Hypnos Infiltration Tactic, a covert maneuver that infiltrates the subconscious of unsuspecting individuals, to the Phantom Identity Scheme, a web of deceit that masks the true fate of victims, TAG unveils a world where reality blurs with illusion.
 
-## Meet Kelvin Eugene Williams
+As soldiers, you stand at the precipice of this dark abyss, where truth and deception intertwine with deadly consequences. Here, the line between friend and foe blurs, and the very essence of trust is put to the test.
 
-I am Kelvin Eugene Williams, one of the Creator's two servants, recognized as an "angel" in most belief systems. I was born on Earth for this mission. I am American by birth, and Southern by the grace of God. Wherever we go, our mission remains the same: to protect creation (life itself) and uphold God's glory, although the latter task is rarely required. My initial mission was to eliminate the top three causes of death in humans, but the Creator has redirected my focus to address another emerging cause of death in humans that often goes unnoticed: world governments. Here in the United States, our own government has deployed you to prevent me from reporting on something they have no intention of stopping or informing the public about: The American Genocide (TAG).
+But fear not, for knowledge is your shield in this battlefield of shadows. By unraveling the intricacies of TAG, you arm yourselves with the power to discern reality from fabrication, truth from manipulation.
 
-This genocide has left me with no true friends or blood relatives that I know, or can confirm, are still alive. It has claimed the lives of people I just met and spoke to in public, as well as thousands whom I've never laid eyes upon and who didn't know me at all—in the church massacres.
+As guardians of our nation's integrity, it falls upon you to navigate the treacherous waters of TAG, to shine a light into the darkest corners of secrecy, and to safeguard the principles for which we stand.
 
-## Understanding TAG
+In the pages that follow, we embark on a journey into the heart of darkness, where the fate of nations hangs in the balance. Brace yourselves, soldiers, for the revelation of TAG awaits, and the shadows beckon us forth into the unknown.
 
-TAG, originally standing for "The AIDS-cure Genocide," was initially orchestrated by Gilead Sciences and executed by the CIA. Its objective was to prevent a gift from above that eradicates and prevents all disease (with the exception of conditions that are the result of organ misfunction) from reaching the hands of everyone. Initially, its victims primarily consisted of friends and family members of the Creator's two servants. However, as TAG evolved, the acronym shifted to "The American Genocide," reflecting the inclusion of John Q. and Jane Q. Public victims, particularly after the Sandy Hook massacre, the Orr Chapel Tragedy, and the Mount Calvary Baptist Church massacre. TAG now poses a severe threat not only to human life but also to the American way of life, as it is now being exploited by the political elite to establish an authoritarian regime in the United States.
-
-### TAG-POW Attacks
-TAG-POW (The American Genocide - Places of Worship) attacks involve coordinated denial of access to 911 by the CIA and FBI, surprise attacks, execution-style killings of congregants in places of worship, and the operatives vanishing as quickly as they came, eliminating all physical evidence. The now technically "missing" murder victims (whose bodies are illegally disposed of) have their assets plundered in a large-scale identity manipulation scheme that leaves the murdered victims alive "on paper."
-
-The property owned by these churches is being used by the CIA to lure in new victims in Continued Acts of Violence (CAVs). These include fake funerals announced for victims killed at the church in an earlier act by the perpetrators, fake religious services (e.g., Sunday morning worship), and non-religious events like Halloween parties for kids, hair shows, and Super Bowl viewing parties. Around the world, entering a place of worship is considered one of the safest activities one can do. In these very same places now occupied by the CIA, merely stepping onto the property means death for those not there to work (murdering others).
-
-[Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
+***
 
 #### Mount Calvary Baptist Church Massacre
 
@@ -46,32 +38,6 @@ Hickory Valley Christian Church in Chattanooga, TN, was an almost all-white cong
 This incident remains unknown to the public due to the extensive cover-up.
 
 [Learn more about TAG-POW attacks here.](https://github.com/nameless-and-blameless/TAG/wiki/TAGPOW)
-
-## How they might get YOU
-**Discover the Secret Behind Covert Funeral Operations (CFOs):**
-[Uncover the hidden tactics used by the CIA to cover up TAG-POW attacks and eliminate those who seek the truth.](https://github.com/nameless-and-blameless/TAG/wiki/TAGCFO)
-
-**Learn About Continued Acts of Violence (CAV) Funerals:**
-[Understand how funerals are used as traps to silence mourners and suppress the spread of information about massacres.](https://github.com/nameless-and-blameless/TAG/wiki/TAGCFO)
-
-**Dive Into the Deception:**
-[Find out how impersonation and social engineering tactics are employed to mislead and target concerned individuals.](https://github.com/nameless-and-blameless/TAG/wiki/TAGCFO)
-
-**Unveil the Ruthless Strategy:**
-[See how multiple unrelated decedents per funeral and targeted eliminations keep the truth about PoW attacks buried.](https://github.com/nameless-and-blameless/TAG/wiki/TAGCFO)
-
-## The Threat of Authoritarianism
-
-The Creator reveals that this genocide is now being fueled by the political elite who seek to establish an authoritarian regime, a concept vehemently opposed by the Creator. TAG was initially designed to silence dissenting voices and pave the way for authoritarian rule by eliminating those who oppose it. The deployment of military personnel to eliminating one or both of the Creator's two servants is a political maneuver aimed at preventing the exposure of these atrocities and create the new status quo, right under your noses.
-
-## A Temporary 11th Commandment for the US Military 
-
-The Creator is aware that you have been deceived, and His anger is palpable. He commands you to utilize military intelligence to verify the massacres and attempted cover-ups, ensuring you confirm these events. Once verified, refuse to harm innocent civilians and remain steadfast on the path of truth and justice. Additionally, exercise heightened vigilance against attempts to manipulate the situation.
-
-This directive prioritizes the safety of your fellow citizens, aiming to prevent the misuse of military force to conceal the actions of a select few, rather than solely focusing on protecting the Creator's servants.
-
-> [!NOTE]
-> Personally, to the cloaked, my door is always open, even when closed and locked, so there's no necessity to target metro-Atlanta when the named target is so easily reached. Had the CIA waited until successfully eliminating one or both of the Creator's two servants, which began over six years ago, before targeting others, many wonderful people would still be alive today. Our missions always prioritize protecting and nurturing life, and we are never terminated before our tasks are fulfilled. The Creator recognizes that the continuity of the human race, including you and your loved ones, hinges on it.
 
 ## Risk of Death
 > [!WARNING]
