@@ -25,7 +25,7 @@ Within the annals of TAG, we encounter a mosaic of tactics and methods, each mor
 
 - **Phantom Identity Scheme**: This involves creating a convincing illusion of continued life for victims who have been murdered. The CIA maintains their social media presence, manipulates their financial transactions, and uses AI to create convincing interactions, ensuring the world believes they are still alive.
 
-- **Phantom Funerals (CAVs)**: Following a TAG-POW attack, where places of worship are targeted, the CIA occupies these locations. Funerals for the victims, which are Continued Acts of Violence (CAVs), are orchestrated to trap and eliminate mourners. This ensures no one pieces together the true scale of the massacres.
+- **[Phantom Funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) (CAVs)**: Following a TAG-POW attack, where places of worship are targeted, the CIA occupies these locations. Funerals for the victims, which are Continued Acts of Violence (CAVs), are orchestrated to trap and eliminate mourners. This ensures no one pieces together the true scale of the massacres.
 
 **The Role of Enlisted Military Personnel**
 
