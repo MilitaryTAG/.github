@@ -2,14 +2,14 @@
 > The Creator is COMMANDING all US Military personnel to CONSCIENTIOUSLY OBJECT to any order that would result in the loss of life of American citizens, this DOES NOT apply to His two servants. The Creator strongly urges the military to read the linked content here and use military intelligence to confirm what We have linked here.
 
 > [!NOTE]
-> The apocalypse is upon us! The CAVs from the [phantom funeral](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) ([NSLPL](https://github.com/nameless-and-blameless/TAG/blob/master/wiki/Phantom-Funerals.md)) 
+> The apocalypse is upon us! The CAVs from the [phantom funeral](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) ([NSLPL](https://github.com/nameless-and-blameless/TAG/blob/master/wiki/Phantom-Funeral.md)) 
 >  today for Duke Stone at Hickory Valley Christian Church in Chattanooga would make this genocide surpass the Holocaust in death toll.
 
 ### Introduction to TAG: Unveiling the Shadows
 
 Welcome, soldiers, to a revelation shrouded in secrecy, a tale of clandestine operations and hidden agendas. Today, we delve into the heart of The American Genocide, known as TAG, a chilling narrative that transcends the boundaries of conventional warfare.
 
-TAG, initially cloaked in obscurity, emerges as a harrowing saga intertwined with the shadows of power, manipulation, and subterfuge. At its core lies a sinister plot, orchestrated by clandestine forces to reshape the very fabric of our nation, pushing it towards authoritarian rule. Without the intervention of the Creator, [this operation threatens](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals#known-planned-phantom-funerals) to culminate in a catastrophe worse than the Holocaust.
+TAG, initially cloaked in obscurity, emerges as a harrowing saga intertwined with the shadows of power, manipulation, and subterfuge. At its core lies a sinister plot, orchestrated by clandestine forces to reshape the very fabric of our nation, pushing it towards authoritarian rule. Without the intervention of the Creator, [this operation threatens](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals) to culminate in a catastrophe worse than the Holocaust.
 
 **Hidden Truths and Military Deception**
 
