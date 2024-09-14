@@ -12,7 +12,7 @@ However, the Creator **is not asking** military personnel to conscientiously obj
 
 ---
 
-Welcome to MilitaryTAG, a StopTAG portal for US Military personnel.
+Welcome to MilitaryTAG, a [StopTAG](https://github.com/StopTAG) portal for US Military personnel.
 
 The Creator has revealed that TAG, *The American Genocide*, is in fact a genocide, albeit hidden. Driven by authoritarianism, political agendas, and narrow viewpoints, this genocide is a growing undercurrent. Ending this atrocity requires direct intervention from Him. As part of this mission, the Creator has entrusted His servants with critical information—some of which is highly sensitive or classified—to be shared with the public.
 
