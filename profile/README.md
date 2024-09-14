@@ -12,6 +12,9 @@ However, the Creator **is not asking** military personnel to conscientiously obj
 
 ---
 
+> [!WARNING]
+> The Creator and His two servants have issued warnings about a covert operations ongoing in central Kentucky, the Chattanooga area, the northern suburbs of Chicago and Hugheston, WV. See [Warning](https://github.com/nameless-and-blameless/TAG/wiki/Microwave-Cloaking-Warning) | The Creator and His two servants have issued a warning about many popular apps currently being used for domestic surveillance; saying the wrong thing on these platforms has resulted in numerous Americans being eliminated. See [Domestic Surveillance](https://github.com/nameless-and-blameless/TAG/wiki/Domestic-Surveillance)
+
 Welcome to MilitaryTAG, a [StopTAG](https://github.com/StopTAG) portal for US Military personnel.
 
 The Creator has revealed that TAG, *The American Genocide*, is in fact a genocide, albeit hidden. Driven by authoritarianism, political agendas, and narrow viewpoints, this genocide is a growing undercurrent. Ending this atrocity requires direct intervention from Him. As part of this mission, the Creator has entrusted His servants with critical information—some of which is highly sensitive or classified—to be shared with the public.
